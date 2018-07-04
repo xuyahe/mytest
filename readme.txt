@@ -1,1 +1,1 @@
-quick and simple
+quick hehe simple
